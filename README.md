@@ -1,1 +1,1 @@
-[Launch the Interactive Microlearning Guide](https://sites.google.com/view/brandambassadorplaybookmicrole/full-page-embed)
+[Brand Ambassador Playbook](https://sites.google.com/view/brandambassadorplaybookmicrole/full-page-embed)
